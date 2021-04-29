@@ -1,0 +1,2 @@
+-melodyloops.com -muzica principala a jocului
+-freesound.org -sunetele de colectare 
